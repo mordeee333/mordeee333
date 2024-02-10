@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mordeee333
+- 👀 I’m interested in anime, videogame development, and CATS!
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on N/A
+- 📫 phone number - (402)-687-6279
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I love anime
